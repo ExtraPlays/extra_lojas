@@ -1,3 +1,3 @@
 # extra_lojas
 
-[Loja](https://i.imgur.com/hc0cAtl.png)
+[Loja](http://i.imgur.com/hc0cAtl.png)
